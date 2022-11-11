@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mahdi
-- 👀 I’m interested in Anime, Computer, Games, Music(English, Latin, K-POP)
+- 👀 I’m interested in Anime, Computer, Games, Music
 - 🌱 I’m currently learning Computer in University
 - 💞️ I’m looking to collaborate on Programming and Web Design
 - 📫 How to reach me "Gmail : Mahdi2015GAD@Gmail.com" "Instagram : Mahdi.Salehi.2003"
